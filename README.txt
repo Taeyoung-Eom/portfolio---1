@@ -1,1 +1,1 @@
-![캡처](https://user-images.githubusercontent.com/75707477/116408112-68516b00-a86d-11eb-80f9-7bb6c593ca91.PNG)
+![캡처](https://user-images.githubusercontent.com/75707477/116408731-207f1380-a86e-11eb-9f43-308edf3b9d43.PNG)
